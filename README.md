@@ -1,2 +1,0 @@
-# Intelligens_penzugyi_szamvitel_a_biztos-t-si_szektorban
-MIA kurzus szakdolgozat kodjainak megosztasa
